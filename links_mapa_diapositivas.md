@@ -1,0 +1,9 @@
+*Mapa conceptual*
+-
+https://miro.com/welcomeonboard/YWxSak1iN3pYeFlXalUwMTFIVlFVNWNoTGJsanFRM05mNTNlWWhkSFA2SHlKUTBYR2Y2TFdxaWZONzhQVXpXSnBxUTB1cG1ud2JPWG9EQU5lYitmRnM0bngzVExnUERaWDl4eXptL2kxZU94U1JjM3BkdGJxY1N2T1NlRzFEVlphWWluRVAxeXRuUUgwWDl3Mk1qRGVRPT0hdjE=?share_link_id=27498492229
+
+*Diapositivas*
+-
+https://www.canva.com/design/DAG7LOvLzq8/WWZE0GGNs2DStylnbFIYnQ/edit?utm_content=DAG7LOvLzq8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+
